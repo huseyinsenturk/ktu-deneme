@@ -3,4 +3,4 @@ ne yazalim icin yazdık 2. kez
 tegistir
 
 
-4. degisiklik
+4. degisiklikyryuhj

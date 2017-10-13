@@ -1,1 +1,1 @@
-ne yazalým içine
+ne yazalim icin yazdýk 2. kez
